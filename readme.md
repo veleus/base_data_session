@@ -5,3 +5,5 @@ https://docs.google.com/document/d/16idzFXE2kubsZ3qT1KEM0MHPEks3ukzA37FU5-fxLCE/
 
 
 https://docs.google.com/document/d/1-M9znoCt96Rqv0ZrIa22e7tW2I8GicaTSzY6_PiiICE/edit?usp=sharing   -  скрипт
+
+https://docs.google.com/viewer?url=https://stepik.org/certificate/6b2a648b51bc50ffc084cfba2cdd82b6eb074e75.pdf - сертификат
